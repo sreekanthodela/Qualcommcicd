@@ -1,0 +1,2 @@
+# Qualcommcicd
+lhebgruojlenrv
